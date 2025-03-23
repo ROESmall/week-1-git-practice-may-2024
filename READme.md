@@ -1,0 +1,1 @@
+Hi, Iam Roletia Small I am not sure if this is getttin read or not. But I pray I sumitted the assignments correctly. So I will keep this short in case I am taking too myself lol well I AM never alone because IAM covered in the POWERFUL BLOOD of Yahusha Ha"Mashiach toda Yahuah! amien
